@@ -1,2 +1,3 @@
 # etkortnavn
-høhøhøhøhø
+hï¿½hï¿½hï¿½hï¿½hï¿½
+HÃ¸ Et langt navn
